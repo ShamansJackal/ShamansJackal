@@ -1,6 +1,6 @@
 ### Hi, i'm Felix and i'm hate Elfs and Racism
 
-- 😄 Pronouns: Ren\Py
+- 😄 Pronouns: Ren/Py
  
 Python/JavaScript developer, WoW/DnD player.
 
