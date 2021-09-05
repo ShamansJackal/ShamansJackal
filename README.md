@@ -1,4 +1,4 @@
-### Hi, i'm Felix and i'm hate Elfs and Racism
+### Hi, i'm Felix and i'm hate Elves and Racism
 
 - 😄 Pronouns: Ren/Py
  
