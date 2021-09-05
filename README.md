@@ -1,4 +1,6 @@
-### I'm hate Elfs and Rasim
+### Hi, i'm Felix and i'm hate Elfs and Rasim 
+
+Python/JavaScript developer
 
 <!--
 **ShamansJackal/ShamansJackal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
