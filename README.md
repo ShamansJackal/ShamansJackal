@@ -1,5 +1,5 @@
-### Hi, i'm Felix and i'm hate Elfs and Rasim 
-
+### Hi, i'm Felix and i'm hate Elfs and Racism
+ 
 Python/JavaScript developer, WoW/DnD player.
 
 <!--
